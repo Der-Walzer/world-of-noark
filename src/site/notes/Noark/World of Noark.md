@@ -9,4 +9,9 @@
 
 [[Noark/World's Timeline\|World's Timeline]]
 
-The main home page of all the panels.
+[[Noark/Darkness Governor's Artifacts\|Darkness Governor's Artifacts]]
+
+[[Noark/Darkness Governors Lineage\|Darkness Governors Lineage]]
+
+[[Noark/Governor's Abilities\|Governor's Abilities]]
+
