@@ -2,9 +2,7 @@
 {"dg-publish":true,"permalink":"/noark/world-s-timeline/"}
 ---
 
-
-
-Its the same as normal earth history, up until 1875
+The world of Noark is the same as normal real Earth up until 1875, when its history begins to diverge.
 
 **Tuesday 6th April, 1875:**  
 _The Darkest Dawn_
@@ -23,3 +21,17 @@ This tradition still carries on till the era of Mira's rule.
 
 # Prominent Historical Events
 
+## *The Morning of Ashes*
+
+The "Morning of Ashes" or more commonly known as "The Mourning Ashes" was an incident that occurred the day after the eclipse.
+On the morning of Wednesday 7th April, 1875, 94 corpses were found in the Saint Burg Children Park.
+The incident gained public attention rapidly due to the fact that the corpses were unidentifiable despite being completely intact. No one came forward and said that they knew the identity of any of the corpses, they had no fingerprints, no dental records, the corpses were undergoing liquefaction and internal bloating despite the corpses only being in the early stages of autolysis, and perhaps most perplexing of all, their body cells were completely devoid of any traces of dna.
+The incident gained its name from the fact that during forensic analysis, it was found that their water filled lungs were stuffed with ashes of unknown origins that were insoluble in water. A handful of ash was even found sticking to their diaphragm.
+
+
+
+## *Month of the Dimming*
+
+  is an event which occurred during the first thirty one days of the darkness appearing, people go there and accidentally carry it back with them, spreading the small doses even further.
+
+This lead to extremely high rates of physical assaults, mass hysteria, people going mad, miscarriages, murders, hallucinations, and most notably, suicides. 
