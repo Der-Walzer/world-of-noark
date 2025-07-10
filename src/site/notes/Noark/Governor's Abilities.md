@@ -2,8 +2,6 @@
 {"dg-publish":true,"permalink":"/noark/governor-s-abilities/"}
 ---
 
-
-
 A list of all the intrinsic abilities of all the Darkness Governors that are recorded within the Ring of Command.
 
 [[Noark/Conquest\|Conquest]]
@@ -16,7 +14,7 @@ A list of all the intrinsic abilities of all the Darkness Governors that are rec
 
 [[Noark/Paradise's Gate\|Paradise's Gate]]
 
-[[Blood Manipulation\|Blood Manipulation]]
+[[Noark/Blood Manipulation\|Blood Manipulation]]
 
 [[Noark/Nerve Paralysis\|Nerve Paralysis]]
 

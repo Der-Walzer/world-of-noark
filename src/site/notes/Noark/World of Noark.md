@@ -15,3 +15,6 @@
 
 [[Noark/Governor's Abilities\|Governor's Abilities]]
 
+[[Noark/Architecture & Technology\|Architecture & Technology]]
+
+[[Noark/Landmarks\|Landmarks]]

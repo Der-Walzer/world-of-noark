@@ -4,4 +4,4 @@
 
 
 
-[[RoFT World/Guests\|Guests]].
+[[RoFT World/Guests\|Guests]]

@@ -7,7 +7,7 @@ The intrinsic ability of Lorssia Nimel, holder of the title "The Puppeteer"
 # Components
 
 - Establish a mental link between the user and all the enthralled.
-- Allows limited sharing of the user's capabilities with the thralls. 
+- Allows limited sharing of the user's capabilities with the thralls.
 # Mechanism
 
 In exchange for granting a sliver of her power, Lorssia seals off all the sensory organ of her subject by sewing their mouths, eyes, nose and ears shut with one of the needles of the manifestation of her Claw; clipping the nerve endings of their skin that make them making them indifferent to pain. A truly horrible power.

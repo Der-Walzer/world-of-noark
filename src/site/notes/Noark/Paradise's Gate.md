@@ -2,8 +2,6 @@
 {"dg-publish":true,"permalink":"/noark/paradise-s-gate/"}
 ---
 
-
-
 The intrinsic ability of [[Noark/Mira Mundora\|Mira Mundora]], holder of the title "The Unconquerable"
 
 The ability "Paradise's Gate" allows Mira can manifest as a small tower falling from the sky.  

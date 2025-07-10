@@ -2,8 +2,6 @@
 {"dg-publish":true,"permalink":"/noark/conquest/"}
 ---
 
-
-
 The ability granted to [[Noark/Yagdrav Dunkelheit\|Yagdrav Dunkelheit]], holder of the title "The Liberator"
 
 Conquest is a manifestation of the [[RoFT World/Law of Conquest\|Law of Conquest]].  

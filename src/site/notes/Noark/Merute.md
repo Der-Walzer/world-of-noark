@@ -2,8 +2,6 @@
 {"dg-publish":true,"permalink":"/noark/merute/"}
 ---
 
-
-
 The official standard unit of measurement: Merute.
 
 The reason that 1 merute - the unit of measurement - is exactly 1.36 meters, is because it wasn't always a unit for measuring distance, but started as a unit for measuring the degree of corruption caused by darkness (which I am having be a viscous, fine-mist like substance that's almost pitch black with a heavy purple tint).  

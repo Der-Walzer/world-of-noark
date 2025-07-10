@@ -2,13 +2,11 @@
 {"dg-publish":true,"permalink":"/noark/mira-mundora/"}
 ---
 
-
-
 Birthed by an [[Hierachies\|Epilictic]] mother, Mira was a stillborn. Due to her status as a stillbirth, she was dumped to decay in [[Noark/Decay Chambers\|Aschengarten]].
 
 At the time, they didn't know that she was a Darkness Heir candidate. She had [[Noark/Paradise's Gate\|Paradise's Gate]], an ability that was on par with [[Noark/Conquest\|Conquest]], not just in the ability's raw capability, but also in its nature being closer to the divine as compared to the more earthly nature of all other Darkness Heir abilities.
 
-Nine days after the events, there was another stillbirth in the hospital. When a [[TK!Mira's foster father\|certain]] [[Noark/Corpse Disposers\|corpse disposer]] was carrying the stillborn to lay it to rest in , he heard crying. When he looked inside in confusion to see what's happening, he's shocked to see that not only Mira hasn't decayed, she is the one crying.
+Nine days after the events, there was another stillbirth in the hospital. When a [[Noark/TK!Mira's foster father\|certain]] [[Noark/Corpse Disposers\|corpse disposer]] was carrying the stillborn to lay it to rest in , he heard crying. When he looked inside in confusion to see what's happening, he's shocked to see that not only Mira hasn't decayed, she is the one crying.
 
 He immediately realized that she must be a Darkness Heir, and had some kind of ability that not allowed her to somehow stay alive despite being a stillborn, but also go nine days without any food, water or any sustenance of any kind. 
 

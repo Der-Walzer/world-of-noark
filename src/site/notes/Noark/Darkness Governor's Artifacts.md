@@ -2,8 +2,6 @@
 {"dg-publish":true,"permalink":"/noark/darkness-governor-s-artifacts/"}
 ---
 
-
-
 Here are some of the basic powers and relics that the Darkness Heirs inherit when they become a Darkness Governor:
 
 # Ring of Command: 

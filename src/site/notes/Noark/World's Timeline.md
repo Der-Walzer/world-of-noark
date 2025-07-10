@@ -5,7 +5,7 @@
 The world of Noark is the same as normal real Earth up until 1875, when its history begins to diverge.
 
 **Tuesday 6th April, 1875:**  
-_The Darkest Dawn_
+*The Darkest Dawn*
 
 A completely black, mist-like substance started spreading around the world following the total solar eclipse on this day, enshrouding 86% of the world in the wake of its destruction.  
 By the time Yagdrav (who becomes the first Darkness Governor after saving humanity and the world) saved humanity and the world from extinction by forcing the remaining alive humans to undergo millenniums worth of evolution in a single instant to merge them with the darkness, we are already set back to 1305 in terms of human advancement.  
@@ -35,3 +35,41 @@ The incident gained its name from the fact that during forensic analysis, it was
   is an event which occurred during the first thirty one days of the darkness appearing, people go there and accidentally carry it back with them, spreading the small doses even further.
 
 This lead to extremely high rates of physical assaults, mass hysteria, people going mad, miscarriages, murders, hallucinations, and most notably, suicides. 
+
+## *Ash Creep*
+
+
+
+
+
+# Epoch
+
+#### 🜏 _Post-Darkest Dawn Era_ (1875–1905)
+
+- Civilization collapses.
+    
+- Yagdrav saves mankind with **forced evolution**.
+    
+- Tribal magic orders form as instinctual responses to survival.
+    
+
+#### 🩸 _Heir War Era_ (1905–2048)
+
+- Dozens of **Darkness Heirs** (chosen or accidental) fight for dominance.
+    
+- Magic becomes a weapon of mass entropy.
+    
+- Crimson Queen rises: genocidal, mystic warlord.
+    
+- Rise of **Blood Altars**, **Ash Temples**, and **War-Choruses**.
+    
+
+#### 🛐 _Era of the Priest_ (2075–Present)
+
+- Theocratic order forms under "The Priest."
+    
+- The Gift is formalized into strict hierarchies.
+    
+- Magic is sacred and tied to divine stations.
+    
+- **Mira’s rule** begins. A Gifted Queen selected through holy prophecy or Void mutation.
