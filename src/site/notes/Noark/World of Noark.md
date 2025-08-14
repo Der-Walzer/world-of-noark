@@ -15,3 +15,7 @@
 [[Noark/Architecture & Technology\|Architecture & Technology]]
 
 [[Noark/Landmarks\|Landmarks]]
+
+
+
+Disclaimer: Everything is still in the very early stages of development. As such, everything is subject to change. Especially names for things, since most of them are placeholders (and some are very obvious placeholders too)
