@@ -2,7 +2,9 @@
 {"dg-publish":true,"permalink":"/noark/world-of-noark/","tags":["gardenEntry"]}
 ---
 
-[[Noark/Mira Mundora\|Mira Mundora]]
+Geography
+
+[[Noark/Magic\|Magic]]
 
 [[Noark/World's Timeline\|World's Timeline]]
 

@@ -50,26 +50,18 @@ This lead to extremely high rates of physical assaults, mass hysteria, people go
     
 - Yagdrav saves mankind with **forced evolution**.
     
-- Tribal magic orders form as instinctual responses to survival.
-    
 
 #### 🩸 _Heir War Era_ (1905–2048)
 
-- Dozens of **Darkness Heirs** (chosen or accidental) fight for dominance.
-    
-- Magic becomes a weapon of mass entropy.
+- Dozens of **Darkness Heirs** fight for dominance.
     
 - Crimson Queen rises: genocidal, mystic warlord.
     
-- Rise of **Blood Altars**, **Ash Temples**, and **War-Choruses**.
+- Rise of **Blood Altars** and **Ash Temples**
     
 
 #### 🛐 _Era of the Priest_ (2075–Present)
 
-- Theocratic order forms under "The Priest."
-    
-- The Gift is formalized into strict hierarchies.
-    
-- Magic is sacred and tied to divine stations.
+- Theocratic/Monarchi order forms under "The Priest."
     
 - **Mira’s rule** begins. A Gifted Queen selected through holy prophecy or Void mutation.
