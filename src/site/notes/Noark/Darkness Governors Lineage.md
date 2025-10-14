@@ -37,7 +37,10 @@
 Founding Governor: [[Noark/Yagdrav Dunkelheit\|Yagdrav Dunkelheit]]
 
 
-
+Queen of Roses: Aylin Sonul
 
 Current Governor: [[Noark/Mira Mundora\|Mira Mundora]]
 
+
+
+Nurgül/Aygül/Aoife

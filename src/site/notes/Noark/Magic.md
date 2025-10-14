@@ -233,3 +233,51 @@ Price/Toll
 
 
 **Does magic comply with the user or have a separate presence or will?**
+
+# 
+
+# Wild Magic
+
+The fourth magic subtype
+Wild/Forbidden Magic
+These are the untamable natural magical phenomenons that happen in the world
+So stuff like external darkness exposure changing your outer appearance
+Or "darkness poisoning" changing your internals and warping personality
+Its the observable phenomenons that happen in nature ever since the darkness integration
+That's why its called "wild" magic
+And the "forbidden" part is because the effects of the magic is almost always negative
+So the unnatural/abominable changes that started occuring in nature are due to this
+The fauna and flora that "survived" and exists in the words now is due to this too
+That's why its all so fucking weird and works in such very unnatural ways 
+Its kinda like the ambient magic in the world
+Its not like you can't make use of it
+You definitely can if you are creative enough
+The main difference between wild and the rest of the three is that its "natural" magic, as opposed to "individual" magic
+Okay then
+So I don't think I explained this yet?
+But if I had to give it a more accurate name to the fourth magic type, "Wild Magic", then I would name as "Soul Magic"
+Since darkness is effectively the souls of "beings beyond the stars", mushed into an incoherent mess
+So for the sake of the understanding
+I'll be referring to darkness as souls in this convo
+So, like I said, darkness is the incoherent mess of souls of another world
+All the consciousness of these souls were combined into one large pool and thrown into a layer above hell
+And there, the souls were driven mad and lost all the will that their consciousness had, and were corrupted by the flames of hell over many centuries
+Then during the events of The Darkest Dawn, these were able to escape from their purgatory and were drawn to the will of the living humans of Earth
+Its their centuries of torment and suffering, and the flames of hell, that corrupts living things and causes erosion of stuff
+So how wild magic works, is that the caster "tunes into the rhythm" of the world and "opens his own soul" to the ambient souls in the air
+Essentially opening a pathway for the ambient souls, since these lack a mind of their own and are drawn to will that is still intact
+The caster can then fashion these ambient souls with his will into a desire spell and use the ambient souls he let in as fuel to cast magic
+I think "opening his own soul" is pretty self-explanatory, the castor lets some ambient souls into his body and exerts his will to fashion them into spell
+Now what I mean by "tune into the rhythm of the world" is pretty interesting
+The souls lack a mind of their own, only some residue basic instincts
+As such, you need some that is familiar to them to let them in your body
+How does one do that?
+By speaking their language
+Since these humans all had one common tongue, and all their people were combined into one, this is the strongest familiarity you can have
+So the spell casting is merely the caster speaking in their tongue about what he wants to do
+How did the people of this world learn this?
+Well, darkness still has some flickers of will left here and there
+And these wills are mostly what the new creatures in the world are: some small sparks of will gaining a lot of souls and shaping into something familiar and simple
+Anyways
+The people who live close to the souls can sometimes hear the voices of these will residue, especially the people who have gone mad
+And from these, the tongue of the outer beings was learned
