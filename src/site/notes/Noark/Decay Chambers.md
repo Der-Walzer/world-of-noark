@@ -27,7 +27,7 @@ Aschen = Ashes, Garten (from Kindergarten) = Garden ("Garden of children's ashes
 
 # Nihilo Oubliette
 
-Nihilo Oubliette is a small room underground the main palace where the darkness heirs and governors are buried. The darkness in this area is actually harmless, so even normal people can visit it without any reprecussions. Every Governor also has a dedicated grave in this area with their "ashes" in urns, since unlike everyone else, the corpses of Darkness Governors don't decay as long as the ring is inside them. Once the ring is removed, their body will turn to black mist of darkness, which is what's stored in urns.
+Nihilo Oubliette is a small room underground the main palace where the darkness heirs and governors are buried. The darkness in this area is actually harmless, so even normal people can visit it without any repercussions. Every Governor also has a dedicated grave in this area with their "ashes" in urns, since unlike everyone else, the corpses of Darkness Governors don't decay as long as the ring is inside them. Once the ring is removed, their body will turn to black mist of darkness, which is what's stored in urns.
 
 The reason being that, like I said before, everyone else who dies has their soul inside the darkness emission that is emitted when their corpse decays. However, the souls of darkness heirs has high resistance to being assimilated by the darkness or becomes a physical phenomenon, and the souls of the darkness governors is immediately carried to the limbo of The Knowledge
 As such, their darkness residue doesn't have the soul fuel powering the corruption

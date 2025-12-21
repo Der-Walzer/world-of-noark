@@ -12,8 +12,6 @@ How are works of magic accomplished?
 
 What kind of preparation or study is required before undertaking a magical work?
 
-  
-
 Who can do magic in your world? Those who have been taught? Those with the right genes? Certain races? Holy or religious people? People who can afford it? Rulers?
 
 What, precisely, can it manipulate? Physical items, elements, etc.
